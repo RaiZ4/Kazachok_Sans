@@ -1,0 +1,2 @@
+# Kazachok_Sans
+санс
